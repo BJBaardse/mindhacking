@@ -150,7 +150,7 @@ What is mindfulness?
 
 TLDR -- Powerfully effective conscious awareness.  Or 'fully conscious awareness'.
 
-When we lack mindfulness, we get so entangled in our own thoughts and emotions that we forget the biger picture.  Our perspective narrows, and we lose our way.  We do regretful things that cause needless suffering in ourselves and others.  Mindfulness allows us to recognize our options, choose our responses wisely, and take control over the direction of our lives.  Mindfulness leads to Insight, and awakening.  With mindfulness, we pay attention to the _right_ things, and in a more skillful way.  With mindfulness, youre more fully conscious and alert than normal.  Attention is more precise/objective and peripheral awareness is much higher.  
+When we lack mindfulness, we get so entangled in our own thoughts and emotions that we forget the biger picture.  Our perspective narrows, and we lose our way.  We do regretful things that cause needless suffering in ourselves and others.  Mindfulness allows us to recognize our options, choose our responses wisely, and take control over the direction of our lives.  Mindfulness leads to Insight, and awakening.  With mindfulness, we pay attention to the _right_ things, and in a more skillful way.  With mindfulness, you're more fully conscious and alert than normal.  Attention is more precise/objective and peripheral awareness is much higher.  
 
 Quality of attention / peripheral awareness improves
 * Peripheral awareness doesnt fade away when attention is focused.
